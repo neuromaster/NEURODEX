@@ -11,3 +11,6 @@ If you want something, please contact me via Skype or Telegram.
 Email: iceprince.L528@gmail.com
 Telegram: https://t.me/lionel528
 Skype: live:.cid.9055315bd9c46ec
+
+Merry Christmas.
+Hope to hear from you soon right after holidays.
