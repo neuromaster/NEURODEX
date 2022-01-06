@@ -1,8 +1,10 @@
 # NEURODEX
-NEURODEX $NXR
+NEURODEX #NEUROMASTER
 
-Custom DEX #NEURODEX 
+Custom DEX YIELDING CRYPTO CAPACITOR #NEURODEX 
 
 https://neuromaster.io/neurodex
 
-Reponse going out all #Devs ASAP - The Future Is Not Far Behind - When Dreams Come True - Thank you
+Reponse going out all #Devs ASAP - The Future Is Not Far Behind - When Dreams Come True - Thank you ◉ $WAVES $BSC POLARITY
+
+
